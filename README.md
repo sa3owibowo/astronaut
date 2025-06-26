@@ -1,1 +1,1 @@
-### 🧑‍🚀 Hello, Astronaut! 
+### Hello, Strangers!
